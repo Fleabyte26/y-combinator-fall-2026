@@ -1,1 +1,0 @@
-# VectorEdge Telemetry: 10-Slide Technical Pitch Deck
